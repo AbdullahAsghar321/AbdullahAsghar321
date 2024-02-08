@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Web projects
 - 📫 you can reach me through insta @abdullahasghar144
 - 😄 Pronouns: Abdullah
-- ⚡ Fun fact: There is no limit to learning if you try to want more and more you gain more.Thank you!
+- ⚡ Fun fact: There is no limit to learning if you try to want more and more you gain more...
 
 <!---
 AbdullahAsghar321/AbdullahAsghar321 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
